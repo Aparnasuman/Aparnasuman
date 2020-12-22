@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... Front End idea for the building responsive website
 - 📫 How to reach me: ... [mail](Aparnasuman2@gmail.com)
 - 😄 Pronouns: ... Beauty
-- ⚡ Fun fact: ...I love gosseping
+- ⚡ Fun fact: ...I love gossiping
